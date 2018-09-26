@@ -1,6 +1,6 @@
 # **中山大学的来源**
 
-### 中山大学*（Sun Yat-sen University, SYSU）*，简称“中大”，由孙中山先生创办，有着一百多年办学传统。<dir align="right">
+### 中山大学 *（Sun Yat-sen University, SYSU）* ，简称“中大”，由孙中山先生创办，有着一百多年办学传统。<dir align="right">
 
 <img src="https://gss3.bdstatic.com/7Po3dSag_xI4khGkpoWK1HF6hhy/baike/w%3D268%3Bg%3D0/sign=05e5d58a0224ab18e016e6310dc181f0/b3119313b07eca8032bb094b9a2397dda04483db.jpg" width = "30%" height = "20%" align=right>
 
@@ -13,7 +13,7 @@
 ### 1925年，国立广东大学与广东公立医科大学等大学合拼并改名成国立中山大学。
 &nbsp;
 <img src="https://gss2.bdstatic.com/9fo3dSag_xI4khGkpoWK1HF6hhy/baike/s%3D220/sign=cebe7de77dcb0a4681228c3b5b63f63e/b3b7d0a20cf431ad09a2dc244d36acaf2edd98bf.jpg" align=right>
-##医学院
+## 医学院
 ### 1931年，广东公立医科大学改称成国立中山大学医学院，并在1953-54年间与岭南大学医学院，公立广东光华医学院合拼成华南医学院，在1985年改称为中山医科大学。
 ##### <font><dir align="right">国立中山大学钟楼&emsp;
 
