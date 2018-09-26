@@ -21,10 +21,10 @@
 <img src="https://gss2.bdstatic.com/9fo3dSag_xI4khGkpoWK1HF6hhy/baike/s%3D220/sign=eb540cabcf177f3e1434fb0f40ce3bb9/43a7d933c895d14397d77a3e75f082025aaf070d.jpg" align=right>
 &nbsp;   
 &nbsp;   
-&nbsp;
+&nbsp;   
 ### 1953年，中山大学的财经、政法各系分别调至武汉大学、中南财经学院、中南政法学院等院校。隔年，将全国惟一的语言系由中山大学调整到北京大学，中山大学植物研究所划归中国科学院管理（现华南植物园）。同时将原武汉大学、湖南大学、广西大学、南昌大学、华中师范大学、广东法商学院(现广东财经大学)等院校部分有关科系师生调至中山大学。
-&nbsp;
+&nbsp;   
 ### 2001年，将中山大学和中山医科大学再次合拼。
 <img src="https://gss0.bdstatic.com/94o3dSag_xI4khGkpoWK1HF6hhy/baike/s%3D220/sign=40095f6aab4bd11300cdb0306aaea488/29381f30e924b899219dc22168061d950a7bf602.jpg" align=right>
-&nbsp;
+&nbsp;   
 ### 2015年，中山大学与深圳市政府举行共建世界一流大学战略合作协议签约仪式，启动深圳校区，形成“三校区五校园”的办学格局。至此，就成为我们现在看到的中山大学。 
